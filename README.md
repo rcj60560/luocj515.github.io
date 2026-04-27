@@ -2,7 +2,6 @@
 
 **Seeking Native English Speakers to Exchange Chinese & English**
 
----
 
 ## 👋 About Me
 
@@ -12,7 +11,6 @@
 - **English Level**: Basic (3000–4000 vocabulary)
 - **Purpose**: Self-studying English, **NO commercial purpose** ✓
 
----
 
 ## 📚 Learning Journey
 
@@ -23,7 +21,6 @@ Currently self-studying:
 
 **Learning Style**: Independent learner • Consistent & long-term commitment
 
----
 
 ## 🤝 What I'm Looking For
 
@@ -33,7 +30,6 @@ Currently self-studying:
 - ✅ Want long-term language exchange
 - ✅ Interested in discussing textbooks & practice together
 
----
 
 ## ⏰ Available Time
 
@@ -43,7 +39,6 @@ Currently self-studying:
 
 
 
----
 
 ## 📝 Exchange Principles
 
@@ -52,6 +47,5 @@ Currently self-studying:
 🎯 **Structured**: Focus on textbooks + real conversation practice  
 🤗 **Friendly**: Respectful & supportive learning environment
 
----
 
 **Feel free to message me directly if interested! Let's learn together! 🚀**

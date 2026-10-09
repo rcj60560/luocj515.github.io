@@ -1,4 +1,4 @@
-# 🌍 Luochenjian | Language Exchange Partner
+# 🌍 Language Exchange Partner (EN ⇄ ZH)
 
 **EN ⇄ ZH (Mandarin) · Looking for a long-term, stable language partner**
 
@@ -57,7 +57,7 @@ Currently self-studying the Cambridge **English Vocabulary in Use** series (Elem
 • **Mon–Fri 09:00–18:00 (UTC+8): text only** — I'm at work, no voice
 • Voice is welcome, just schedule it with me in advance
 • Currently self-studying the Cambridge *Vocabulary in Use* series
-• More about me → https://github.com/luocj515/luocj515.github.io
+• More about me → https://github.com/rcj60560/luocj515.github.io
 
 Interested? DM me directly 🙂
 ```

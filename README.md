@@ -1,51 +1,63 @@
 # 🌍 Luochenjian | Language Exchange Partner
 
-**Seeking Native English Speakers to Exchange Chinese & English**
+**EN ⇄ ZH (Mandarin) · Looking for a long-term, stable language partner**
 
 
 ## 👋 About Me
 
-- **Name**: Luochenjian (罗陈建)
-- **Location**: Chengdu, Sichuan, China
-- **Status**: Full-time worker
-- **English Level**: Basic (3000–4000 vocabulary)
-- **Purpose**: Self-studying English, **NO commercial purpose** ✓
+- **Age**: 35
+- **Job**: Programmer
+- **Location**: Chengdu, China (UTC+8)
+- **English level**: Can read and understand simple everyday sentences, but my **spoken English is weak** — that's exactly what I want to improve
+- **Purpose**: Self-study, **NO commercial purpose** ✓
 
 
-## 📚 Learning Journey
+## 📚 What I'm Learning
 
-Currently self-studying:
-- New Concept English **Book 2**
-- New Concept English **Book 3**
-- New Concept English **Book 4**
+Currently self-studying the Cambridge **English Vocabulary in Use** series (Elementary → Advanced).
 
-**Learning Style**: Independent learner • Consistent & long-term commitment
+**Learning style**: Independent learner • Consistent, long-term commitment
 
 
 ## 🤝 What I'm Looking For
 
-**Ideal Partner Profile**:
-- ✅ Native English speaker
-- ✅ Learning Chinese (Mandarin)
-- ✅ Want long-term language exchange
-- ✅ Interested in discussing textbooks & practice together
+- ✅ A **long-term, stable** language partner — English for Chinese (Mandarin)
+- ✅ Patient with a slow speaker; happy to help your Chinese in return
+- ✅ Consistent, not just a few days
 
 
-## ⏰ Available Time
+## ⏰ Availability
 
-- **Weekday Evenings**: 20:00 – 22:00 (China Standard Time, UTC+8)
-- **Weekends**: Full day (flexible schedule)
-- **Timezone**: China Standard Time (UTC+8)
-
-
+- **Weekdays 09:00 – 18:00 (UTC+8)**: I'm at work — **text messages only, no voice**
+- **Voice calls**: totally fine, but need to be **scheduled in advance** (evenings / weekends work best)
+- Ping me anytime by text; I'll reply when free
 
 
 ## 📝 Exchange Principles
 
-✨ **Mutual Learning**: We help each other improve  
-⏳ **Consistent**: Long-term commitment to regular exchange  
-🎯 **Structured**: Focus on textbooks + real conversation practice  
-🤗 **Friendly**: Respectful & supportive learning environment
+✨ **Mutual**: you help my English, I help your Chinese
+⏳ **Long-term**: regular practice, not a one-week thing
+🎯 **Practical**: real conversation + what I meet in my textbooks
+🤗 **Friendly**: relaxed and respectful
 
+**Interested? DM me directly — let's learn together! 🚀**
 
-**Feel free to message me directly if interested! Let's learn together! 🚀**
+---
+
+## 📋 Copy-Paste Post (Discord)
+
+> *The exact message below is what I post in Discord servers. Copy it from here.*
+
+```
+**Language Partner — EN ⇄ ZH (Mandarin)** 🇬🇧🇨🇳
+
+• 35 y/o programmer from Chengdu, China (UTC+8)
+• I can read simple everyday English, but my speaking is weak — that's what I want to fix
+• Looking for a **long-term, stable** language partner (English ↔ Chinese)
+• **Mon–Fri 09:00–18:00 (UTC+8): text only** — I'm at work, no voice
+• Voice is welcome, just schedule it with me in advance
+• Currently self-studying the Cambridge *Vocabulary in Use* series
+• More about me → https://github.com/luocj515/luocj515.github.io
+
+Interested? DM me directly 🙂
+```
